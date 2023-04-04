@@ -8,6 +8,6 @@
 
 ![Esta soy yo](celes1.jpeg)
 ![Haciendo lo que mas amo](celes2.jpeg)
-![Acompañada de mi hermano y mi papa](celes3.jpeg)
+![Acompañada de mi hermano y mi papa](celes3.jpg)
 
 - En esta última foto... muestro un poco de lo mucho que pude disfrutar de vivir esta experiencia de la mano de mi papa y mi hermano menor... compartir esta pasion con ellos es una de las mejores cosas que me pudo pasar! Y agradecer tambien a mi mama de lo mucho que nos apoya desde afuera del Tatami, grabandonos, gritando y alentandonos como la mejor :)
